@@ -1,2 +1,3 @@
-# d310n9.github.io
-d310n9 homepage
+# Work in Progress
+
+Find me on Linkedin.com/in/delonglu
